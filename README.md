@@ -5,5 +5,4 @@
 - 🇧🇷 bato em gringos
 - ![https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white
 - ⚽ sou bunito sou gostoso jogo bola e danço
-- ✈️ ✈️ 🗼 🗼 11/09
-- 💣 🗾 1945
+
